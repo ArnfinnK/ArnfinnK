@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... getting things done ... (sorry, I'm a project manager....)
 ( And by the way, anything fun with a mountain bike or skis underfoot :-) )
 - 🌱 I’m currently learning how to use Github without unnessecarily disturbing the team.
-(Next year I'll learn How to bike.)
+(Next year I want to learn to bike.)
 - 💞️ I’m looking to collaborate on anything that makes progress.
 - 📫 How to reach me: Send me a note 👍
 
